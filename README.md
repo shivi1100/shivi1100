@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... New tech stack 
 - 📫 How to reach me ... https://www.linkedin.com/in/shivangi-shrivastava-446279217/
 - 😄 Pronouns: ... She / Her
-- ⚡ Fun fact: ... Got to Know very late that..there is no connection b/w  degree | School  and real life jobs... [i.e something different]
+- ⚡ Fun fact: ... learn evey day
 
 
 <!---
